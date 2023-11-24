@@ -1,8 +1,31 @@
-Hi, I’m 51chigua666, wellcom to my github ...
-51cg . fun
+🍉🍉🍉 51吃瓜网 最新地址 🍉🍉🍉  (本信息更新时间 2023-11-24)
 
+51吃瓜最新官网 https://51cg2.me （禁止直接点击访问）请复制链接粘贴到浏览器
 
-<!---
-51chigua666/51chigua666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+51吃瓜永久地址（需科学⬆️上网） https://51cg.fun （禁止直接点击访问）请复制链接粘贴到浏览器
+
+51吃瓜TG官方群 https://t.me/https_51cg_fun_1/6 （禁止直接点击访问）请复制链接粘贴到浏览器
+
+失联获取最新地址方法1: https://github.com/51chigua666 （禁止直接点击访问）请复制链接粘贴到浏览器
+
+失联获取最新地址方法2: 📧发任意内容到邮箱 51cgfun@gmail.com （禁止直接点击访问）请复制链接粘贴到邮件App
+
+51吃瓜 官方商务TG  https://t.me/GM_51cg （禁止直接点击访问）请复制链接粘贴到浏览器
+
+加入微信扣扣粉丝群 https://51cg2.me/?path=/qun.html
+
+---------------------
+
+网址打不开？？？
+
+1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
+
+2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https://
+
+3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
+
+4.下载蚂蚁加速器：https://b8e.obqyyh.com/c-5016/a-brEXR 科学上网工具
+
+---------------------
+
+请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力😘～
